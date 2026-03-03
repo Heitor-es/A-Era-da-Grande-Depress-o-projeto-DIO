@@ -1,4 +1,4 @@
 # A-Era-da-Grande-Depress-o-projeto-DIO
 eu preferi seguir nos mesmos padrões e fala sobre economia e treinei a ai do notebook lm com vídeos e paginas falando sobre a grande depressão ai depois fiz algumas perguntas como os principais nomes da crise de 1929 e depois perguntei sobre como ela impactou positiva e negativamente o mundo entre outras perguntas que eu fiz e as que ele sugeriu 
-LINK para o minahs notas notebookLM
+LINK para o minhas notas notebookLM
 https://notebooklm.google.com/notebook/62b6e975-857b-43ce-9b68-41db568e9ef7
